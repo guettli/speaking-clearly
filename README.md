@@ -6,7 +6,7 @@ thoughts -- faults
 
 to live -- the life
 
-to think -- to sink
+to think -- to sink -- to sync
 
 the angle -- the angel
 
